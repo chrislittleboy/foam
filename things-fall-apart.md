@@ -1,0 +1,27 @@
+# Things Fall Apart
+
+About traditional social structure in Nigeria being eroded by colonialism and religion. 
+
+Story about the tortoise
+
+‘Once upon a time’ she began, ‘all the birds were invited to a feast in the sky. They were very happy and began to prepare themselves for the great day. They painted their bodies with red cam wood and drew beautiful patterns on them with uli.
+‘Tortoise saw all these preparations and soon discovered what it all meant. Nothing that happened in the world of the animals ever escaped his notice; he was full of cunning. As soon as he heard of the great feast in the sky his throat began to itch at the very thought. There was a famine in those days and Tortoise had not eaten a good meal for two moons. His body rattled like a piece of dry stick in his empty shell. So he began to plan how he would go to the sky.’ 
+‘But he had no wings’ said Ezinma.
+‘Be patient,’ replied her mother. ‘That is the story. Tortoise had no wings, but he went to the birds and asked to be allowed to go with them.
+“We know you too well,” said the birds when they had heard him. “You are full of cunning and you are ungrateful. If we allow you to come with us you will soon begin your mischief.” 
+“You do not know me,” said Tortoise. “I am a changed man. I hve learnt that a man who makes trouble for others is also making it for himself.”
+“Tortoise had a sweet tongue, and within a shrt time all the birds agreed that he was a changed man, and they each gave him a feather, with which he made two wings.
+‘ At last the great day came and Tortoise was the first to arrive at the meeting place. When all the birds had gathered together, they set off in a body. Tortoise was very happy and voluble as he flew among the birds, and he was soon chosen as the mean to speak for the party because he was a great orator.
+‘”There is one important thing which we must no forget,” he said as they flew on the way. “When people are invited to a great feast like this, they take new names for the occasion. Our hosts in the sky will expect us to honour this age-old custom.”
+‘None of the birds had heard of this custom but they knew that Tortoise, in spite of his failings in other directions, was a widely travelled man who knew the customs of different people. And so they each took a new name. When they had all taken, Tortoise also took one. He was to be called All of you.
+‘At last the party arrived in the sky and their hosts were very happy to see them. Tortoise stood up in his many-coloured plumage and thanked them for their invitation. His speech was so eloquent that all the birds were glad they had brought him, and nodded their heads in approval of all he said. Their hosts took his as the king of the birds, especially as he looked somewhat different from the others.
+‘After kola nuts had been presented and eaten, the people of the sky set before their guests the most delectable dishes Tortoise had ever seen or dreamt of. The soup was brought out hot from the fire and in the very pot in which it had been cooked. It was full of meat and fish. Tortoise began to sniff aloud. There was pounded yam and also yam pottage cooked with palm-oil and fresh fish. There were also pots of palm-wine. When everything had been set before the guests, one of the people from the sky came forward and tasted a little from each pot. He then invited the birds to eat. But Tortoise jumped to his feet and asked: “For whom have you prepared this feast?”
+“For all of you” replied the man.
+“Tortoise turned to the birds and said: “You remember that my name is All of you. The cutom here is to serve the spokesman first and the others later. They will serve you when I have eaten”.
+‘He began to eat and the birds grumbled angrily. The people of the sky thought it must be their custom to leave all the food for their king. And so Tortoise ate the best part of the food and then drank and his body filled out in his shell.
+‘The birds gathered round to eat what was left and to peck at the bones he had thrown all about the floor. Some of them were too angry to eat. They chose to fly home on n empty stomach. But before they left each took back the feather he had lent to Tortoise. And there he stood in his hard shell full of food and wine but without any wings to fly home. He asked the birds to take a message for his wife, but they all refused. In the end Parrot, who had felt more angry than the others, suddenly changed his mind and agreed to take the message.
+‘” Tell my wife,” said Tortoise, “to bring out all the soft things in my house and cover the compound with them so that I can jump down from the sky without very great danger.”
+‘Parrot promised to deliver the message, and then flew away. But when he reached Tortoise’s house he told his wife to bring out all the hard things in the house. And so she brought out her husband’s hoes, matchets, spears, guns, and even his cannon. Tortoise looked down from the sky and saw his wife bringing things out, but it was too far to see what they were. When al seemed ready he let himself go. He fell and fell and fell until he began to fear that he would never stop falling. And then like the sound of his cannon he crashed on the compound.’
+Did he die?’ asked Ezinma.
+‘No,’ replied Ekwefi. ‘His shell broke into pieces. But there was a great medicine-man in the neighbourhood. Tortoise’s wife sent for him and he gathered all the bits of shell and stuck them together. That is why Tortoise’s shell is not smooth.’ 
+
