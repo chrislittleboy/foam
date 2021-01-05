@@ -1,14 +1,14 @@
 # Things Fall Apart
 
-About traditional social structure in Nigeria being eroded by colonialism and religion. 
+About traditional social structure in Nigeria being eroded by colonialism and religion.
 
 Story about the tortoise
 
 ‘Once upon a time’ she began, ‘all the birds were invited to a feast in the sky. They were very happy and began to prepare themselves for the great day. They painted their bodies with red cam wood and drew beautiful patterns on them with uli.
-‘Tortoise saw all these preparations and soon discovered what it all meant. Nothing that happened in the world of the animals ever escaped his notice; he was full of cunning. As soon as he heard of the great feast in the sky his throat began to itch at the very thought. There was a famine in those days and Tortoise had not eaten a good meal for two moons. His body rattled like a piece of dry stick in his empty shell. So he began to plan how he would go to the sky.’ 
+‘Tortoise saw all these preparations and soon discovered what it all meant. Nothing that happened in the world of the animals ever escaped his notice; he was full of cunning. As soon as he heard of the great feast in the sky his throat began to itch at the very thought. There was a famine in those days and Tortoise had not eaten a good meal for two moons. His body rattled like a piece of dry stick in his empty shell. So he began to plan how he would go to the sky.’
 ‘But he had no wings’ said Ezinma.
 ‘Be patient,’ replied her mother. ‘That is the story. Tortoise had no wings, but he went to the birds and asked to be allowed to go with them.
-“We know you too well,” said the birds when they had heard him. “You are full of cunning and you are ungrateful. If we allow you to come with us you will soon begin your mischief.” 
+“We know you too well,” said the birds when they had heard him. “You are full of cunning and you are ungrateful. If we allow you to come with us you will soon begin your mischief.”
 “You do not know me,” said Tortoise. “I am a changed man. I hve learnt that a man who makes trouble for others is also making it for himself.”
 “Tortoise had a sweet tongue, and within a shrt time all the birds agreed that he was a changed man, and they each gave him a feather, with which he made two wings.
 ‘ At last the great day came and Tortoise was the first to arrive at the meeting place. When all the birds had gathered together, they set off in a body. Tortoise was very happy and voluble as he flew among the birds, and he was soon chosen as the mean to speak for the party because he was a great orator.
@@ -23,5 +23,4 @@ Story about the tortoise
 ‘” Tell my wife,” said Tortoise, “to bring out all the soft things in my house and cover the compound with them so that I can jump down from the sky without very great danger.”
 ‘Parrot promised to deliver the message, and then flew away. But when he reached Tortoise’s house he told his wife to bring out all the hard things in the house. And so she brought out her husband’s hoes, matchets, spears, guns, and even his cannon. Tortoise looked down from the sky and saw his wife bringing things out, but it was too far to see what they were. When al seemed ready he let himself go. He fell and fell and fell until he began to fear that he would never stop falling. And then like the sound of his cannon he crashed on the compound.’
 Did he die?’ asked Ezinma.
-‘No,’ replied Ekwefi. ‘His shell broke into pieces. But there was a great medicine-man in the neighbourhood. Tortoise’s wife sent for him and he gathered all the bits of shell and stuck them together. That is why Tortoise’s shell is not smooth.’ 
-
+‘No,’ replied Ekwefi. ‘His shell broke into pieces. But there was a great medicine-man in the neighbourhood. Tortoise’s wife sent for him and he gathered all the bits of shell and stuck them together. That is why Tortoise’s shell is not smooth.’
