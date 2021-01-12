@@ -1,5 +1,6 @@
-# list of notes to write
+# to write
 
-Pessoa
 Berry W
-Berry m
+Berry S
+Boone C
+Sun Tzu
