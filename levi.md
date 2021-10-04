@@ -1,4 +1,6 @@
-Margaret Levi - political scientist. Theory of the state.
+# Margaret Levi - political scientist
+
+Theory of the state.
 
 Optimistic view of development of society: from "Why do we need a new theory of government
 
@@ -14,7 +16,7 @@ The quality of government depends on the quality of institutions and constitutio
 
 When a combination of individuals with the incentives and imagination to figure out how to operate better within or even to overcome the status quo, we observe institutional transformation and creation."
 
-Not sure I agree with the agency ascribed to socieities. Individuals can fashion changes in their own lives, and to a much smaller degree in the lives of others. Intention to change as the main driver of change bypasses the complexity in the world we live in. 
+Not sure I agree with the agency ascribed to socieities. Individuals can fashion changes in their own lives, and to a much smaller degree in the lives of others. Intention to change as the main driver of change bypasses the complexity in the world we live in.
 
 "Fortunately, there is less concern now with rather abstract “theories of the state” and more with government, the organization and individuals who establish and administer public policies and laws."
 

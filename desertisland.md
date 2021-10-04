@@ -9,11 +9,10 @@ Salif Keita - Moffou
 Beyonce - 4
 Etta James - At Last!
 
-# Book choice
+## Book choice
 
 Neville Shute - Trustee from the Toolroom
 
-# Luxury choice
+## Luxury choice
 
 A hill on the island
-
